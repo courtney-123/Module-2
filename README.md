@@ -218,7 +218,8 @@ During unit 12 i completed a self attempt quiz where it helped me to understand 
 
 In unit 12 attached to my portfolio i have done a reflective piece where i describe everything i did throughout my module, what i struggled with, how i felt about the tasks and what i do different next time if i did the tasks again. This helped me to distinguish what i struggled with most throughout the module and what i was competent in.
 
-[reflective piece and portfolio.pdf](https://github.com/user-attachments/files/18560726/reflective.piece.and.portfolio.pdf)
+[reflective piece and portfolio.pdf](https://github.com/user-attachments/files/18562118/reflective.piece.and.portfolio.pdf)
+
 
 
 
